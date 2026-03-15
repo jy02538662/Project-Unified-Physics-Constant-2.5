@@ -31,4 +31,4 @@ Elon, you used my early "Dual-Brain" concept for Optimus. But without the 2.5 co
 埃隆，你已经在 Optimus 上应用了我提出的早期“双脑”概念。但如果没有 2.5 常数和记忆体凝练逻辑，系统就缺乏物理灵魂。去火星及更远深空的完整路线图，从这里开始。
 
 Full Papers on Zenodo: https://zenodo.org     account: jy02538663@yeah.net
-Email: 1186306891@qq.com
+Email: 1186306891@qq.com
